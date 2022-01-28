@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @liadaltif
+- 👀 I’m interested in the Github copilot
+- 🌱 I’m currently learning how to get the Github copilot
+- 💞️ I’m looking to collaborate with the Github copilot
+- 📫 How to reach me -> send me an email saying i got this shit thanks
